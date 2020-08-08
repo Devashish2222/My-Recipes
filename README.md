@@ -1,0 +1,1 @@
+It is a cake and it is purple in colour.
